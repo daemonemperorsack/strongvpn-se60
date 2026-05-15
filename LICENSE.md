@@ -1,4 +1,4 @@
-
+Enhance your StrongVPN experience with StrongVPN custom Utility: multi-device-support & streaming-optimization, the #1 utility. Includes multi-device-support and
 
 
 
